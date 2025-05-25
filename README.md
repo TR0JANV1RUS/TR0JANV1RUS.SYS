@@ -13,6 +13,7 @@
 <p align="center"
 
 ask for pronouns (usually he/him collectively) | refer to pony name!
+<p align="center"
 
 taken by gleamingmothsys<3
 ---- ----
