@@ -12,7 +12,7 @@
 
 <p align="center"
 
-  ask prns (usually he/him collectively) | refer to pony name
+  ask for pronouns (usually he/him collectively) | refer to pony name!
 taken by gleamingmothsys<3
 ---- ----
 
