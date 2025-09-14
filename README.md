@@ -22,7 +22,7 @@ taken by daemology<3
   '' ...it's just a common view, i guess it's lost on you! ''
 <p align="center"
 
-fronter name / pony name / dull / dullmoth / edward or riddler (HOST)
+fronter name / pony name / trojan / trojan virus / edward or riddler (HOST)
 <p align="center"
 
 classic literature , wendigoon , forsaken , minecraft , eddsworld , tf2 , MHA/BNHA , RDR II , skullgirls , DC comics , norse/greek mythology , analogue horror , shakespeare , amerian history , musicals/theatre , regretevator
@@ -39,7 +39,7 @@ DNI:
 Basic DNI (any phobes/hateful and/or problematic people)
 <p align="center"
 
-Gatekeepers (Please… just don’t.)
+Media gatekeepers (Please… just don’t.)
 <p align="center"
 
 Fake-claimers (singlets especially.)
