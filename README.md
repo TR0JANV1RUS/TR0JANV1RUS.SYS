@@ -3,8 +3,6 @@
   TR0JAN_V1RUS.SYS
  <p align="center"
 
-![IMG_9171](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.neowin.net%2Fforum%2Ftopic%2F460625-making-your-computer-look-like-it-has-a-virus%2F&psig=AOvVaw05SN5cRhitXRvYEjMVjOD2&ust=1757952993236000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCIjxoLjT2I8DFQAAAAAdAAAAABAL![image](https://github.com/user-attachments/assets/20326f85-6fbb-49e0-a8a6-9100bd331b02)
-)
 
 
 ---- ----
