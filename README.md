@@ -3,7 +3,8 @@
   TR0JAN_V1RUS.SYS
  <p align="center"
 
-<img src='link'> </img>
+![image](https://github.com/user-attachments/assets/d1f0ef18-d61c-4ebc-a5d8-ef0e315ddb2c)
+
 
 ---- ----
 <p align="center"
