@@ -14,7 +14,7 @@
 ask for pronouns (usually he/him collectively) | refer to pony name!
 <p align="center"
 
-taken by cosmic_tweek<3
+taken by daemology<3
 ---- ----
 
 <p align="center"
