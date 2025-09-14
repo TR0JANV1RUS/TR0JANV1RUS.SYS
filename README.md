@@ -64,3 +64,7 @@ T.R.A.S.H
 
 you know the drill. play nice.
 ---- ----
+<p align="center"
+
+![image](https://github.com/user-attachments/assets/fede9783-65ea-4fdc-911f-bd97c6fecf03)
+
