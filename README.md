@@ -1,6 +1,6 @@
 <p align="center"
 
-  THE DULL MOTH SYSTEM
+  TR0JAN_V1RUS.SYS
  <p align="center"
 
 ![IMG_9171](https://github.com/user-attachments/assets/d0d10817-2145-448b-b8e4-613d5a59d2cf)
@@ -15,7 +15,7 @@
 ask for pronouns (usually he/him collectively) | refer to pony name!
 <p align="center"
 
-taken by gleamingmothsys<3
+taken by cosmic_tweek<3
 ---- ----
 
 <p align="center"
